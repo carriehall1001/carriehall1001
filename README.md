@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @carriehall1001. I'm Hard of Hearing and is also #ActuallyAutistic
+Hi, I’m @carriehall1001. I'm Hard of Hearing and is also #ActuallyAutistic
 - 😄 Pronouns: she/they
 - ⚡ Founder of an autistic run 501(c3) non-profit organization: Autistic Women's Alliance
 
